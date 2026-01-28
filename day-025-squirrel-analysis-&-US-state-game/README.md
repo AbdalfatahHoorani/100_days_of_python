@@ -1,0 +1,1 @@
+## two projects one for squire analysis and the other is a mini game for the states in the US
